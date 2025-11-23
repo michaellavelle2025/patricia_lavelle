@@ -5,3 +5,5 @@
 * [Patricia Lavelle's daughter, Judi](https://github.com/michaellavelle2025/judi_hunter)
 
 * [Patricia Lavelle's son, Marc](https://github.com/michaellavelle2025/echobox/tree/main?tab=readme-ov-file#marc-fletcher)
+
+* [Patricia Lavelle's nephew, Michael](https://github.com/michaellavelle2025)
