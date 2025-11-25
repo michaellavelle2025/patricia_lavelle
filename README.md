@@ -11,3 +11,7 @@
 ## Annihilation, Destruction and Ruining Lives
 
 * [The Boomtown Rats - I Don't Like Mondays](https://youtube.com/watch?v=-Kobdb37Cwc)
+
+## Abuse
+
+* [Abuse](https://youtube.com/playlist?list=PLf2hNFDbLeZea_n4a4bCEp_9Uk_BamgTR)
